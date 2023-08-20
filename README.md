@@ -1,0 +1,2 @@
+# faraka
+Faraka Investment Ltd
